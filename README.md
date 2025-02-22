@@ -1,7 +1,4 @@
-东南房间需要书桌（赖人沙发可以考虑放多功能厅）。考虑增加适当书柜
-客厅阳台需要一个休闲空间（喝茶的地方）。
-客厅需要电视机背景，（电视背景可有可无以美观为主）地柜可以有，多做收纳，柜子以封闭式为主。
-中间朝南书柜多一点，通过设计营造学习的空间需。
-西南房间里面需要一排柜子
-水池放餐厅一个。
-西北房间做衣帽间
+The southeast room requires a desk (a multifunctional hall can be considered for a sofa). Consider adding appropriate bookshelves
+The living room balcony needs a leisure space (a place to drink tea The living room needs a TV background (TV background is optional and aesthetic is the main consideration), and floor cabinets can be used for storage. Cabinets are mainly enclosed.
+There should be more bookshelves facing south in the middle, creating a learning space through design.We need a row of cabinets in the southwest room,
+ Put a restaurant in the pool. Northwest room as a cloakroom
